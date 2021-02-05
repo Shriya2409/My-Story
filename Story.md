@@ -1,1 +1,1 @@
-Once there was a horse. The horse's name was Chetak.
+Once there was a horse. The horse's name was Chetak. The horse had a friend who was a dog.
