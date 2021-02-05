@@ -1,0 +1,1 @@
+Once there was a horse. The horse's name was Chetak.
